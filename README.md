@@ -1,3 +1,3 @@
-Hello, I'm Amirul or known as EzyCzy online. I'm a first year at UNSW undergoing BAdv Computer Science (Honours).
+Hello, I'm Amirul or known as EzyCzy online, I'm bad at cs and math. I'm a first year at UNSW studying Computer Science!
 
-Email me at mirulh406@gmail.com for any collaboration.
+Email me at a.juarimi@student.unsw.edu.au for any collaboration.
